@@ -1,3 +1,3 @@
 ### Hi,
 
-You may check the [products and projects I work on](https://www.antoineweber.com/projects)
+You may check the [products I work on](https://www.antoineweber.com/projects)
